@@ -26,3 +26,6 @@ Mark Twain:
 
 Shakira:
 > *Me cuesta el odio. Me cuesta mucho el resentimiento. Me cuesta guardar esos sentimientos en mi corazón.*
+
+Edward Snowden:
+> *Arguing that you don't care about the right to privacy because you have nothing to hide is no different than saying you don't care about free speech because you have nothing to say.*
