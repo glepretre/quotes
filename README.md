@@ -32,3 +32,6 @@ Edward Snowden:
 
 Vincent Van Gogh:
 > *I keep on making what I can’t do yet in order to learn to be able to do it.*
+
+Thích Nhất Hạnh:
+> *Today is a wonderful day, the most wonderful day. That does not mean that yesterday was not wonderful. But yesterday is already gone. It does not mean that tomorrow will not be wonderful. But tomorrow is not yet here. Today is the only day available to us today, and we can take good care of it. That is why today is so important - the most important day of our lives.*
