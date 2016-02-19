@@ -35,3 +35,6 @@ Vincent Van Gogh:
 
 Thích Nhất Hạnh:
 > *Today is a wonderful day, the most wonderful day. That does not mean that yesterday was not wonderful. But yesterday is already gone. It does not mean that tomorrow will not be wonderful. But tomorrow is not yet here. Today is the only day available to us today, and we can take good care of it. That is why today is so important - the most important day of our lives.*
+
+Clayton M. Christensen:
+> *Questions are places in your mind where answers fit. If you haven’t asked the question, the answer has nowhere to go. It hits your mind and bounces right off. You have to ask the question — you have to want to know — in order to open up the space for the answer to fit.*
