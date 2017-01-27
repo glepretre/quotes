@@ -41,3 +41,7 @@ Clayton M. Christensen:
 
 Aaron Sorkin:
 > *You call it procrastination, I call it thinking.*
+
+J.R.R. Tolkien:
+> *Many that live deserve death. And some that die deserve life. Can you give it to them? Then do not be too eager to deal out death in judgement. For even the very wise cannot see all ends.*
+
