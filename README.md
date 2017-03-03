@@ -47,3 +47,6 @@ J.R.R. Tolkien:
 
 J.K. Rowling:
 > *My philosophy is if you worry, you suffer twice.*
+
+_Boulet_:
+> *Lourd est le parpaing de la réalité sur la tartelette aux fraises de nos illusions.*
