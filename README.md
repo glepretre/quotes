@@ -50,3 +50,6 @@ J.K. Rowling:
 
 _Boulet_:
 > *Lourd est le parpaing de la réalité sur la tartelette aux fraises de nos illusions.*
+
+Aaron Swartz:
+> *Be curious. Read widely. Try new things. What people call intelligence just boils down to curiosity.*
