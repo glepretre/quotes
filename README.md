@@ -56,3 +56,14 @@ _Boulet_:
 
 Aaron Swartz:
 > *Be curious. Read widely. Try new things. What people call intelligence just boils down to curiosity.*
+
+Christina Grimmie:
+> *Oh, I wanna live for the moments.*  
+> *That are gone before we're thinkin' about them.*  
+> *I'm singin' this 'cause we'd be nothin' without them,*  
+> *And this is my anthem, yeah.*  
+>
+> *Oh, I wanna live for the feelings.*  
+> *That keep giving this life a meaning.*  
+> *I'm singin' this 'cause we'd be nothin' without them,*  
+> *And this is my anthem, yeah.*  
