@@ -67,3 +67,15 @@ Christina Grimmie:
 > *That keep giving this life a meaning.*  
 > *I'm singin' this 'cause we'd be nothin' without them,*  
 > *And this is my anthem, yeah.*  
+
+Chester Bennington:
+> *When my time comes*  
+> *Forget the wrong that I've done*  
+> *Help me leave behind some*  
+> *Reasons to be missed*  
+>
+> *And don't resent me*  
+> *And when you're feeling empty*  
+> *Keep me in your memory*  
+> *Leave out all the rest*  
+> *Leave out all the rest*  
