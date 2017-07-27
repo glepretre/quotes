@@ -79,3 +79,6 @@ Chester Bennington:
 > *Keep me in your memory*  
 > *Leave out all the rest*  
 > *Leave out all the rest*  
+
+Kimi Räikkönen:
+> *Just leave me alone, I know what I'm doing.*
